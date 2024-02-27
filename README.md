@@ -1,4 +1,4 @@
-### Hi My name is Vivedha 👋
+### Hi I'm Vivedha 👋
 
 ### Front end developer
 
